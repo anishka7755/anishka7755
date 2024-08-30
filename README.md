@@ -1,6 +1,7 @@
 # 👋 Hi, I'm Anishka
 ### 💻 Web Developer | 🎨 Designer 
-![anya](https://github.com/user-attachments/assets/00b34cf0-a655-4b36-a0d3-12d852d90602)
+![ghfd](https://github.com/user-attachments/assets/bdcf95c7-e579-4815-ae62-4b5c87b69374)
+852d90602)
 
 
 ---
