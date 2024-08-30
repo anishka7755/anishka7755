@@ -1,7 +1,7 @@
 # 👋 Hi, I'm Anishka
 ### 💻 Web Developer | 🎨 Designer 
-![ghfd](https://github.com/user-attachments/assets/bdcf95c7-e579-4815-ae62-4b5c87b69374)
-852d90602)
+![INOANWRD_output_0](https://github.com/user-attachments/assets/c8c8baa9-c0a0-446e-90a7-dff7a42e85e4)
+
 
 
 ---
